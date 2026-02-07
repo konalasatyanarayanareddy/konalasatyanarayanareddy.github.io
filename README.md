@@ -1,1 +1,0 @@
-# konalasatyanarayanareddy.github.io
